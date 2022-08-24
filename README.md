@@ -1,2 +1,5 @@
-# In-order-to-promote-the-stable-and-rapid-development-of-the-new-ATT-market-
-In order to promote the stable and rapid development of the new @ATT market,招募优秀讲师
+In order to promote the stable and rapid development of the new @ATT market, the platform will introduce corresponding incentive measures at different stages of development! Adhering to the principle that the able will be promoted, the superior will be rewarded, the mediocre will be inferior, and the inferior will be eliminated, we are recruiting outstanding lecturers who have a pattern, righteousness, ability, and willingness to give, and give specific incentives: At the end of each month, the highest-level team in the entire network will be Long, negotiate and report the list of outstanding lecturers to @ATT customer service (from 3 in the first month, increasing month by month), the platform will review and select the final outstanding lecturers based on the application of outstanding lecturers’ work performance, and give a small resource conversion (30ATT, issued at the beginning of the next month), to encourage!
+
+
+为了促进@ATT新市场稳定快速发展，平台会在不同的发展阶段，出台相应激励措施！秉承能者上、优者奖、庸者下、劣者汰的原则，现招募有格局、有正气、有能力、肯付出的优秀讲师，给予具体激励措施：
+每月末，由全网最高级别团队长，协商统一报备优秀讲师名单给@ATT客服（首月3名起，逐月增加），平台根据报备优秀讲师的工作业绩申请，审核筛选评定最终的优秀讲师，给予1台小型资源转换器（30ATT，次月初发放），以资鼓励！
